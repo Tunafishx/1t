@@ -11,3 +11,4 @@
 teper zashlev v vetku tuna
 
 allo huston ??
+nu teper to vidno chtoto? novy deposit blin
